@@ -1,4 +1,3 @@
-![](https://media0.giphy.com/media/v1.Y2lkPTc5MGI3NjExNTZqd3RwMTN6MHY3ZjA4andtMzdiZmxlb3RiYjhqeG1tdmJlamFrZyZlcD12MV9pbnRlcm5hbF9naWZfYnlfaWQmY3Q9Zw/Vuw9m5wXviFIQ/giphy.gif)
 
 
 
